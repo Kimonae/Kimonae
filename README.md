@@ -1,7 +1,7 @@
 Hellooow there 👋
 
 **Kimonae/Kimonae** is a boy ! REALLY !
-Here are some ideas to get you started:
+Here are some informations from myself:
 
 - 🔭 I’m currently working on Java
 - 🌱 I’m currently learning Java
