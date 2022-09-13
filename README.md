@@ -10,3 +10,7 @@ Here are some informations from myself:
 - ⚡ Fun fact: When I was young I thought I loved zucchinis because I loved the pickle in my burger mcdonald's ... I said "I want it" and when I had, cooked by my mother, I don't liked it. I thinked my mother was a bad cook.
 
 
+
+draw by myself
+
+![IMG_20190309_181323](https://user-images.githubusercontent.com/70099141/189840842-81e0ac52-9be9-4a63-affc-bcffdf97d3da.jpg)
